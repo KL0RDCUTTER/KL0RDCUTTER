@@ -8,7 +8,7 @@
   · · ────── ꒰ঌ·✦·໒꒱ ────── · ·
   <p align="center">
 <a href="https://klord.atabook.org/" target="_blank"><b>ata</b></a>book&nbsp;&nbsp;&nbsp;
- <a href="https://t.me/xlebsos" target="_blank"><b>inf</b></a>o&nbsp;&nbsp;&nbsp;
+ <a href="https://t.me/klordxs" target="_blank"><b>inf</b></a>o&nbsp;&nbsp;&nbsp;
 <a href="https://guns.lol/klord" target="_blank"><b>guns</b></a>.lol&nbsp;&nbsp;&nbsp;
 <a href="https://klord.straw.page/" target="_blank"><b>𝘴𝘵𝘳𝘢𝘸</b></a>.page
 </p> 
